@@ -36,3 +36,5 @@ https://www.fmprc.gov.cn/eng/wjb_663304/wjbz_663308/2461_663310/202303/t20230329
 Political Theory
 http://en.qstheory.cn
 
+China Has Billionaires
+https://redsails.org/china-has-billionaires/

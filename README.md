@@ -1,5 +1,7 @@
 Socialism with Chinese Characteristics 
 
+https://x.com/commiepommie/status/1904164217927696515?s=46
+
 Deng, Xiaoping. 1984. ‘Building Socialism with a Specifically Chinese Character.’ in The People’s Daily. Beijing.
 https://newlearningonline.com/new-learning/chapter-4/neoliberalism-more-recent-times/deng-xiaoping-socialism-with-chinese-characteristics
 
